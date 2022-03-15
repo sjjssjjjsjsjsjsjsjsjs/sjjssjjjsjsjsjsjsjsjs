@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sjjssjjjsjsjsjsjsjsjs
+- 👀 I’m interested in codeing
+- 🌱 I’m currently learning java script 
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me insta dm me for it 
